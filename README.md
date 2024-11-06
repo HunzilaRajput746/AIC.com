@@ -1,2 +1,1 @@
-# AIC.com
-none
+# Mummadadnanqurban.github.io
